@@ -9,3 +9,9 @@ Anthony Edward "Tony" Stark was a genius, billionaire, playboy, and philanthropi
 * Arrogant
 * Cynical
 * Proud
+
+
+>My armor, it was never a distraction or a hobby, it was a cocoon. 
+>And now, I'm a changed man. You can take away my house, all my tricks and toys. 
+>But one thing you can't take away... I am Iron Man.
+―Tony Stark
